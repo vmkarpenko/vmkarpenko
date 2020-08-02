@@ -1,5 +1,5 @@
 # Vadym Karpenko
-[email](vadim.karpenko.306@gmail.com)| [LinkedIn](https://www.linkedin.com/in/vadym-karpenko-355086130/) | Ukraine, Sumy
+[email](vadim.karpenko.306@gmail.com) | [LinkedIn](https://www.linkedin.com/in/vadym-karpenko-355086130/) | Ukraine, Sumy
 
 ## Senior Software Engineer
 
