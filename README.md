@@ -55,4 +55,3 @@ I have experience in all phases of project development including estimation, des
 ### Language skills:
 * English - Intermediate
 * Ukrainian - Fluent
-* Russian - Fluent
